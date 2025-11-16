@@ -1,4 +1,4 @@
-# 👋 ¡Hola! Soy Rubén Po 👋
+# 👋 ¡Hola! Soy Rubén PO 👋
 
 ### 👨‍💻 Sobre Mí
 
